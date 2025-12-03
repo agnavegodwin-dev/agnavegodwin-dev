@@ -23,4 +23,4 @@ Email: agnavegodwin@gmail.com
 
 WhatsApp/Phone: 08143912491
 
-LinkedIn: 
+LinkedIn: https://www.linkedin.com/in/agnave-godwin-274908310/
